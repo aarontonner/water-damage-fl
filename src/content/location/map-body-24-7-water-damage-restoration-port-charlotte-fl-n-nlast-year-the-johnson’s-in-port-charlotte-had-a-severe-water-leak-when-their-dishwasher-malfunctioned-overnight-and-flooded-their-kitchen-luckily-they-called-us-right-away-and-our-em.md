@@ -38,11 +38,11 @@ In the warm and humid climate of Port Charlotte mold can grow within 24 to 48 ho
 
 ## Top Water Damage Causes in Port Charlotte and How to Prevent Them
 
-Port Charlotte being near the Gulf Coast is prone to water damage from tropical storms, hurricanes and heavy rainfall. Common causes of water damage in this area are roof leaks, overflowing gutters and burst pipes. For example after a recent storm we helped the Roberts family near Charlotte Harbor who had water pouring into their home through a damaged roof. To prevent water damage make sure your roof is inspected regularly, clean your gutters and replace old plumbing. For more tips call us today.
+Port Charlotte being near the Gulf Coast is [prone to water damage](/blog/florida's-water-damage-survival-guide:-protecting-your-sunshine-state-home-from-moisture-mayhem) from tropical storms, hurricanes and heavy rainfall. Common causes of water damage in this area are roof leaks, overflowing gutters and burst pipes. For example after a recent storm we helped the Roberts family near Charlotte Harbor who had water pouring into their home through a damaged roof. To prevent water damage make sure your roof is inspected regularly, clean your gutters and replace old plumbing. For more tips call us today.
 
 ## Water Damage Restoration: Our Solutions for Port Charlotte, FL
 
-When water damage occurs in your Port Charlotte home it’s crucial to act fast. Here’s what to do: First turn off the water source and power to the affected area to avoid electrical hazards. Next call us for immediate water extraction and drying services. We’ll be there fast, assess the damage, extract the water, set up drying equipment. Finally we’ll repair the damaged areas from drywall to flooring and make sure your home is mold free. For more information or help with restoration call us.
+When water damage occurs in your Port Charlotte home it’s crucial to act fast. Here’s what to do: First turn off the water source and power to the affected area to avoid electrical hazards. Next call us for immediate water extraction and drying services. We’ll be there fast, assess the damage, extract the water, set up drying equipment. Finally we’ll repair the damaged areas from drywall to flooring and make sure your home is mold free. For more information or help with restoration call us. Pro-tip: make sure you get proper [water damage insurance](/blog/the-definitive-florida-water-damage-insurance-guide:-protecting-your-property-in-a-high-risk-environment)! You can also look into [technology to further prevent water damage ](/blog/cutting-edge-water-management-technologies:-florida's-battle-against-rising-waters)in your home.
 [(754) 287-1616](tel:7542871616)
 
 ## Water and Mold Removal in Port Charlotte, FL
