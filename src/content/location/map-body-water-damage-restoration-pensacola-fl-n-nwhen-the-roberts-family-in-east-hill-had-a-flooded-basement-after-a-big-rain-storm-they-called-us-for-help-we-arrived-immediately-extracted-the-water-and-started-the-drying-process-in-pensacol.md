@@ -62,7 +62,7 @@ Water damage in Pensacola represents a profound community challenge. Each incide
 
 ## Our Commitment: Restoration Beyond Repair
 
-We don't just restore properties—we restore peace of mind. Our approach combines cutting-edge technology, deep local knowledge, and a commitment to the Pensacola community that goes beyond standard restoration practices.
+We don't just restore properties—we restore peace of mind. Our approach combines cutting-edge technology, deep local knowledge, and a commitment to the Pensacola community that goes [beyond standard restoration practices](/blog/the-complete-florida-hurricane-water-damage-guide:-region-specific-prevention-response-and-restoration).
 
 ### Our Comprehensive Restoration Strategy
 

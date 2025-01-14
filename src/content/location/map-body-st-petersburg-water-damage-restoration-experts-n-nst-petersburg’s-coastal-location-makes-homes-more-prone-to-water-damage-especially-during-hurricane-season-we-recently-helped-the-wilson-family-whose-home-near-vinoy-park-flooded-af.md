@@ -37,7 +37,7 @@ St. Petersburg’s humidity creates the perfect environment for mold to grow aft
 
 ## Water Damage After a Flood in St. Petersburg, FL
 
-St. Petersburg’s proximity to Tampa Bay makes it prone to flooding especially in low lying areas like Coquina Key. We recently helped the Garcia family whose home flooded after a storm surge. Our flood restoration services include water extraction, drying, dehumidification and full restoration of affected areas. We also offer tips on how to protect your home from future floods. If your home has been flooded call us today for service.
+St. Petersburg’s proximity to Tampa Bay makes it [prone to flooding](/blog/the-complete-florida-hurricane-water-damage-guide:-region-specific-prevention-response-and-restoration/) especially in low lying areas like Coquina Key. We recently helped the Garcia family whose home flooded after a storm surge. Our flood restoration services include water extraction, drying, dehumidification and full restoration of affected areas. We also offer tips on how to protect your home from future floods. If your home has been flooded call us today for service.
 
 ## Water Removal in St. Petersburg
 
