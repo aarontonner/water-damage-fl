@@ -13,7 +13,7 @@ tags:
 image: /assets/images/blog/water-damage-insurance-guide-florida.webp
 imageAlt: The Definitive Florida Water Damage Insurance Guide
 ---
-If you require immediate \[water damage restoration](/), call us now! [(754) 287-1616](tel:7542871616)
+If you require immediate [water damage restoration](/), call us now! [(754) 287-1616](tel:7542871616)
 
 ## Introduction: Insurance as Financial Water Damage Shield
 

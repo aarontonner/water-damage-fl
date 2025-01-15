@@ -29,7 +29,7 @@ Last year the Johnson’s in Port Charlotte had a severe water leak when their d
 
 ## Water Damage Cleanup and Repair in Port Charlotte, FL
 
-Whether you’re dealing with storm damage or a burst pipe our complete water damage cleanup and repair services are designed to get your home back to normal fast. Recently we helped a family in the Deep Creek neighborhood whose home was flooded after a severe thunderstorm. We removed the standing water and repaired their damaged drywall, floors and even replaced waterlogged insulation. Our process involves assessing the damage, extracting the water, drying the area and repairing or replacing damaged materials. For water damage cleanup in Port Charlotte call us today.
+Whether you’re dealing with [coastal storm damage](/blog/florida-coastal-property-protection-a-complete-guide-to-waterfront-water-damage-prevention) or a burst pipe our complete water damage cleanup and repair services are designed to get your home back to normal fast. Recently we helped a family in the Deep Creek neighborhood whose home was flooded after a severe thunderstorm. We removed the standing water and repaired their damaged drywall, floors and even replaced waterlogged insulation. Our process involves assessing the damage, extracting the water, drying the area and repairing or replacing damaged materials. For water damage cleanup in Port Charlotte call us today.
 
 ## How to Prevent Mold After Water Damage in Port Charlotte, FL
 

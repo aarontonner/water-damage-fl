@@ -23,7 +23,7 @@ summaryText: Don’t wait for water damage to worsen. Contact us now for 24/7
 ---
 ## St. Petersburg Water Damage Restoration Experts
 
-St. Petersburg’s coastal location makes homes more prone to water damage, especially during hurricane season. We recently helped the Wilson family whose home near Vinoy Park flooded after a tropical storm. We arrived quick, removed the standing water and repaired the damage to their flooring and walls. As local experts we know the unique risks St. Petersburg homeowners face. Call us today for water damage restoration services in your area.
+St. Petersburg’s [coastal location](/blog/florida-coastal-property-protection-a-complete-guide-to-waterfront-water-damage-prevention) makes homes more prone to water damage, especially during hurricane season. We recently helped the Wilson family whose home near Vinoy Park flooded after a tropical storm. We arrived quick, removed the standing water and repaired the damage to their flooring and walls. As local experts we know the unique risks St. Petersburg homeowners face. Call us today for water damage restoration services in your area.
 [(754) 287-1616](tel:7542871616)
 
 ## Water Damage Cleanup and Repair in St. Petersburg Homes
